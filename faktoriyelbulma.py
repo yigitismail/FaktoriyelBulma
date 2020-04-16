@@ -6,3 +6,5 @@ Faktöriyel Bulma Programı
 ****************************
 """)
 ffff
+jjjfjfjjjjjf
+jsjlksf sfljksdf sdnflkjsdfsd
